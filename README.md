@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @EasterTheBunny
+- 👀 I’m interested in the change cryptocurrency will bring to our world
+- 🌱 I’m currently learning market investing
+- 💞️ I’m looking to collaborate on an exchange
+- 📫 How to reach me: follow one of my projects
